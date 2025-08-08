@@ -1,4 +1,4 @@
-# chatgpt网页版：轻松在线使用ChatGPTo4mini，提升您的工作效率/2025/7/29
+# chatgpt网页版：轻松在线使用ChatGPTo4mini，提升您的工作效率/2025/8/8
 
 ## chatgpt免费在线网页版的核心价值
 
